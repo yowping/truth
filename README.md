@@ -1,4 +1,4 @@
-✪ 本站永久网址 https://git.io/168   
+✪ 本站永久网址  https://bit.do/zx168   
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016； QQ 3490166426
 ####▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
@@ -103,7 +103,7 @@
 <a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
 <a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
 #### 持续翻墙方法
-- 收藏本站 https://git.io/168
+- 收藏本站 https://bit.do/zx168
 - 邮箱索取 freeget.one@gmail.com 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
 - 翻墙软件(下载)网址：https://git.io/free
 - 手机翻墙：安卓 http://ur1.ca/oo05n 苹果 https://git.io/ifq
