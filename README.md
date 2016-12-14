@@ -93,8 +93,8 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/jzz/jzz-10.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/19227669/4a896418-8eac-11e6-8d3e-a0e305c89fba.jpg" width="100" height="142"></a>
 #### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/23" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/20588884/7cfe864e-b210-11e6-9aaa-50df4150034e.jpg" width="210"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645466/4be032d0-6196-11e6-9e30-e74e6f2d7d4d.jpg" width="210"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21172084/ca46dfd4-c1c7-11e6-930b-1cd612983e77.jpg" width="210"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21172094/d01d89c6-c1c7-11e6-880c-841eb467d19f.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 <hr></hr>
