@@ -86,7 +86,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/26" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575103/a71fe57a-cef9-11e6-990f-3192f8a69502.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400894/4698562e-fe43-11e5-8234-a85a86def324.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575113/c2fa3f34-cef9-11e6-9c3b-88f6d260405f.jpg" width="100" height="142"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/hsh/hsh-52.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/27" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/23" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
