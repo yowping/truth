@@ -78,7 +78,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/mingbai/mingbai-66/mb66.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354817/05a983b8-3a93-11e6-8861-f787c64ab320.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/zx/zx-80/zx80.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354819/0e19f9ce-3a93-11e6-9040-8e3550b5301c.jpg" width="206" height="80"></a>
 #### ▶ 明慧期刊 · 在线阅读或下载
-<a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575102/a3a49076-cef9-11e6-8b02-28affefc7423.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575102/a3a49076-cef9-11e6-8b02-28affefc7423.jpg" width="170" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/19227600/aa203dee-8eab-11e6-8bed-71cc5ed15bbf.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575105/af32c674-cef9-11e6-9699-5d3640f615be.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575107/bac9872a-cef9-11e6-92fc-825610e8012c.jpg" width="100" height="142"></a>
