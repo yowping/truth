@@ -1,8 +1,8 @@
 ✪ 本站永久网址  https://bit.do/zx168   
-✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016； QQ 3490166426  
+✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016； QQ 3490166426
 #### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471431/987d0e7c-5d33-11e6-9ed3-a4761ad694fa.jpg" width="317" height="123"></a>  
+<a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471431/987d0e7c-5d33-11e6-9ed3-a4761ad694fa.jpg" width="317" height="123"></a>
 #### ▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
@@ -11,7 +11,7 @@
 <a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
 <a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
 <a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
-<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>  
+<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
 #### ▶ 大陆禁片 · 在线观看或下载
 <a href="https://d36twsqkt5gsfh.cloudfront.net/TransplantConfrence.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/18621200/597b0150-7e0f-11e6-9e0e-842d10358b37.jpg" width="317" height="123"></a>
 <a href="https://d229rk9l49nnml.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317" height="123"></a>
