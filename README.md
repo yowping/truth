@@ -32,7 +32,9 @@
 <a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a>
 #### ▶ 明慧特刊 · 在线阅读或下载
-
+| 真实的法轮功 | 中共谎言 | 为什么退党 | 活摘器官 | 善恶有报 |
+| ---------- | ---------- | ---------- | ---------- | ---------- |
+| <a href="https://github.com/tomalltruthforyou/TrueFLG" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a> | <a href="https://github.com/tomalltruthforyou/ExposeLies" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg"></a> | <a href="https://github.com/tomalltruthforyou/QuitCCP" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" ></a> | <a href="https://github.com/tomalltruthforyou/OrganHarvest" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" ></a> | <a href="https://github.com/tomalltruthforyou/Retribution" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" ></a> |
 #### ▶ 闪画集锦 · 在线观看
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
