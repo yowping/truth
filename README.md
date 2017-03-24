@@ -80,6 +80,7 @@
 </details>
 <details>
  <summary><b>中共活摘器官</b></summary>
+ 
  ##### ▶ 明慧期刊
  <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/Organ.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279498/e4809804-fb70-11e5-91dc-d62390c4a3dc.jpg" width="100" height="142"></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/huozhaiZE.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" width="100" height="142"></a>
@@ -92,6 +93,7 @@
 
 <details>
  <summary><b>善恶有报</b></summary>
+ 
  ##### ▶ 明慧期刊
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" width="100" height="142"></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" width="100" height="142"></a>
