@@ -34,7 +34,7 @@
 #### ▶ 明慧特刊 · 在线阅读或下载
 <details>
  <summary><b>真实的法轮功</b></summary>
- ### ▶ 明慧特刊 
+### ▶ 明慧特刊 
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" ></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/disaster.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665389/324a7a0e-0716-11e6-86c3-35e95c15425e.jpg" ></a>
