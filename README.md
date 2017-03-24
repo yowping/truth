@@ -32,51 +32,38 @@
 <a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a>
 #### ▶ 明慧特刊 · 在线阅读或下载
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/ysnbjhp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/huangyan.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446398/d4d8723c-1eed-11e6-8145-d8f549e3ec1a.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/bjmh-018.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279507/e4bce20a-fb70-11e5-9c29-649cbed2943d.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/cheat.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279500/e48634da-fb70-11e5-9ec9-53b364676322.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/sthk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/18621315/cd2fd980-7e10-11e6-9e67-20a4f1283dd1.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/tuidang.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/santui.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279503/e48fa93e-fb70-11e5-9cfd-e08b8e080078.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zx-xxxg-1.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279501/e489cd8e-fb70-11e5-8aee-c95406641827.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zx-xxxg-2.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279502/e48e38b0-fb70-11e5-9005-cc3e153dedc1.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/disaster.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665389/324a7a0e-0716-11e6-86c3-35e95c15425e.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/Organ.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279498/e4809804-fb70-11e5-91dc-d62390c4a3dc.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/huozhaiZE.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/610.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096160/36eabd50-14bb-11e6-8a09-239f033d9958.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/xinaoban.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446399/dd56adf2-1eed-11e6-9fd1-0fb1f2b619fd.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/tianqian.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279505/e4b58d3e-fb70-11e5-8161-e17d7d65ddad.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/ebao.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446397/d097077e-1eed-11e6-866b-8c5758ad00c1.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/yuyantoday.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446400/e346a762-1eed-11e6-81a1-249155ee9d73.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/19" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446663/9882fa84-1ef5-11e6-949e-8be5904382bb.jpg" width="100" height="142"></a>
-#### ▶ 闪画集锦 · 在线观看
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/czsjm-m/czsjm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279881/dec2929e-fb72-11e5-9160-1ba43be8c31a.JPG" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/why-m/why.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279886/deed4d68-fb72-11e5-86b7-b830d46cde06.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/santui-m/santui.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279888/df0d154e-fb72-11e5-8f14-d1afe25cfb4b.JPG" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/wsmtd/wsmtd.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739020/bed5b1b2-4787-11e6-9285-602bf4ed2e7e.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zx-xxxg-m/zx-xxxg.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279879/de6a4576-fb72-11e5-811b-3da1d762f188.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/stzjr/stzjr.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739220/925e5f8e-4788-11e6-8599-8bcc9df16d4d.jpg" width="206" height="80"></a>
+<details>
+ <summary><b>真实的法轮功</b></summary>
+ ### ▶ 明慧特刊 
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/disaster.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665389/324a7a0e-0716-11e6-86c3-35e95c15425e.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/yuyantoday.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446400/e346a762-1eed-11e6-81a1-249155ee9d73.jpg" ></a>
+
+### ▶ 闪画集锦
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/mhhb/mhhb-157/mhhb.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279880/de981c30-fb72-11e5-9a53-649160ac5d86.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/qsjzm-m/qsjzm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14307226/bd4a2282-fc10-11e5-9f70-d4c0c7368882.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/qgqsjzm/qgqsjzm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739014/ba68cf10-4787-11e6-9522-e2ecae3504d4.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjdsp/sjdsp.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739006/b5bf815c-4787-11e6-878c-9504c356aedc.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/ebao/ebao.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739025/c2bd3926-4787-11e6-8b68-be3b105fe1b4.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/gylm/gylm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17647358/02a4bb1c-61dd-11e6-8d58-2911b10af46f.jpg" width="206" height="80"></a>
 <a href="https://github.com/zx168/168/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279883/dee0b102-fb72-11e5-8656-9fe3e24b37f9.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/rqbd/rqbd.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17647361/0a4cef60-61dd-11e6-9cae-890285611dbc.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/hztlbr/hztlbr.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17647359/07598156-61dd-11e6-9e3d-7e296ca31348.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tdcs/tdcs-53/tdcs53.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309688/28ca7b3a-3959-11e6-87b6-d5c7ee3e3e9e.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/mingbai/mingbai-66/mb66.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354817/05a983b8-3a93-11e6-8861-f787c64ab320.jpg" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/zx/zx-80/zx80.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354819/0e19f9ce-3a93-11e6-9040-8e3550b5301c.jpg" width="206" height="80"></a>
+</details>
+
+<details>
+ <summary><b>真实的法轮功</b></summary>
+ 
+</details>
+<details>
+
+ <summary><b>真实的法轮功</b></summary>
+ 
+</details>
+<details>
+ <summary><b>真实的法轮功</b></summary>
+ 
+</details>
+
+<details>
+ <summary><b>真实的法轮功</b></summary>
+ 
+</details>
 #### ▶ 明慧期刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/22678473/01c55378-ecc0-11e6-9525-1ab90ed9da06.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21791013/ff25f320-d6ad-11e6-8674-f769b0ada4f0.jpg" width="100" height="142"></a>
