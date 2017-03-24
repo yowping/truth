@@ -64,6 +64,7 @@
  <summary><b>真实的法轮功</b></summary>
  
 </details>
+
 #### ▶ 明慧期刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/22678473/01c55378-ecc0-11e6-9525-1ab90ed9da06.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21791013/ff25f320-d6ad-11e6-8674-f769b0ada4f0.jpg" width="100" height="142"></a>
