@@ -94,7 +94,7 @@
  <summary><b>善恶有报</b></summary>
  
  ##### ▶ 明慧期刊
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" width="100" height="142"></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" ></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" ></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/610.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096160/36eabd50-14bb-11e6-8a09-239f033d9958.jpg" ></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/xinaoban.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446399/dd56adf2-1eed-11e6-9fd1-0fb1f2b619fd.jpg" ></a>
