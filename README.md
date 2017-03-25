@@ -103,7 +103,7 @@
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/ebao.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446397/d097077e-1eed-11e6-866b-8c5758ad00c1.jpg" width="100" height="142"></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
-</details>
+
 
 
 ##### ▶ 闪画集锦
