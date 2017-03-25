@@ -81,8 +81,8 @@
  <summary><b>中共活摘器官</b></summary>
  
  ##### ▶ 明慧期刊
- <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/Organ.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279498/e4809804-fb70-11e5-91dc-d62390c4a3dc.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/huozhaiZE.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" width="100" height="142"></a>
+ <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/Organ.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279498/e4809804-fb70-11e5-91dc-d62390c4a3dc.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/huozhaiZE.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" ></a>
 
 
 ##### ▶ 闪画集锦
