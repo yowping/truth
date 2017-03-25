@@ -59,7 +59,6 @@
 ##### ▶ 闪画集锦
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
-<a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zx-xxxg-m/zx-xxxg.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279879/de6a4576-fb72-11e5-811b-3da1d762f188.jpg" width="206" height="80"></a>
 </details>
 <details>
 
@@ -96,13 +95,13 @@
  
  ##### ▶ 明慧期刊
 <a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/sjhk.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279504/e4aeeaba-fb70-11e5-8ec2-893cecd781c9.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/610.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096160/36eabd50-14bb-11e6-8a09-239f033d9958.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/xinaoban.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446399/dd56adf2-1eed-11e6-9fd1-0fb1f2b619fd.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/tianqian.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279505/e4b58d3e-fb70-11e5-8161-e17d7d65ddad.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/ebao.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446397/d097077e-1eed-11e6-866b-8c5758ad00c1.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" width="100" height="142"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zyklmnm.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279506/e4b9ee38-fb70-11e5-8070-eb4e92b30b6e.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/610.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096160/36eabd50-14bb-11e6-8a09-239f033d9958.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/xinaoban.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446399/dd56adf2-1eed-11e6-9fd1-0fb1f2b619fd.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/tianqian.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279505/e4b58d3e-fb70-11e5-8161-e17d7d65ddad.jpg"></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/ebao.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446397/d097077e-1eed-11e6-866b-8c5758ad00c1.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/zeysp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665388/324a0d8a-0716-11e6-978f-6b5238da4173.jpg" ></a>
+<a href="https://d225dz4ufcfbcz.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg"></a>
 
 
 
