@@ -13,8 +13,8 @@
 <a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
 <a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
 ### ▶ 大陆禁片 · 在线观看或下载
-<a href="https://d36twsqkt5gsfh.cloudfront.net/TransplantConfrence.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839781/6bb1dc52-1d26-11e7-837d-0e08741a315b.jpg" width="317" height="123"></a>
-<a href="https://d229rk9l49nnml.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839780/6baeb8d8-1d26-11e7-9da8-406fed93980c.jpg" width="317" height="123"></a>
+<a href="https://d36twsqkt5gsfh.cloudfront.net/TenYears.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839781/6bb1dc52-1d26-11e7-837d-0e08741a315b.jpg" width="317" height="123"></a>
+<a href="https://d36twsqkt5gsfh.cloudfront.net/TieZheng.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839780/6baeb8d8-1d26-11e7-9da8-406fed93980c.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
