@@ -23,8 +23,8 @@
 <a href="https://d229rk9l49nnml.cloudfront.net/1400.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15915122/31408db0-2dd6-11e6-8943-8619a37e1722.jpg" width="317" height="123"></a>
 <a href="https://d229rk9l49nnml.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/25" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317" height="123"></a>
-<a href="https://d229rk9l49nnml.cloudfront.net/saviour.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15592373/92c18296-23e6-11e6-8109-8032c263a980.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471431/987d0e7c-5d33-11e6-9ed3-a4761ad694fa.jpg" width="317" height="123"></a>
+<a href="https://d229rk9l49nnml.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317" height="123"></a>
 ### ▶ 音频集锦 · 在线收听及下载
 <a href="https://d225dz4ufcfbcz.cloudfront.net/audio/listaudio9ping.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
 <a href="https://d225dz4ufcfbcz.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
