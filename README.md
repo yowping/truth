@@ -37,7 +37,7 @@
 
 ### ▶ 明慧期刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/26338358/00157224-3f45-11e7-84e0-e0959ad95de8.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21791013/ff25f320-d6ad-11e6-8674-f769b0ada4f0.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/26750682/41dac7ca-47ee-11e7-9714-bb6ebd7fbd11.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/23082611/b928e6d0-f51f-11e6-9949-d51f43f88183.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/23337389/4495707a-fbb1-11e6-9f02-aefecf5e65d4.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24534065/4d6c2320-1591-11e7-8874-8dd9302f3004.jpg" width="100" height="142"></a>
