@@ -41,7 +41,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/23082611/b928e6d0-f51f-11e6-9949-d51f43f88183.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://user-images.githubusercontent.com/28036978/27419703-553188ac-56f0-11e7-9fd8-667dc0499cf4.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24534065/4d6c2320-1591-11e7-8874-8dd9302f3004.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/26" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/26085314/64f2767c-39b1-11e7-949e-d0fcf12c39f0.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/26" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/28678328-b86efce8-72b5-11e7-8a6f-0899e25e10a3.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/27" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/22404285/2d11cec2-e5f3-11e6-8037-9c4e81ffb362.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400894/4698562e-fe43-11e5-8234-a85a86def324.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575113/c2fa3f34-cef9-11e6-9c3b-88f6d260405f.jpg" width="100" height="142"></a>
