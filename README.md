@@ -49,7 +49,7 @@
 ### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/23" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://raw.githubusercontent.com/xjy16/books/master/cover/xjy548.jpg" width="210"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/28678330-b8c241dc-72b5-11e7-9684-21360e479c7b.jpg" width="210"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://github.com/xjy16/books/blob/master/cover/XS-18s.jpg" width="210"></a>
 ### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 
