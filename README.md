@@ -1,5 +1,5 @@
 ✪ 本站永久网址  https://git.io/true168   
-✪ 欢迎反馈： Email youyuan669@yahoo.ca
+✪ 欢迎反馈： Email good.future@gmx.com
 ### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839779/6b975d1e-1d26-11e7-9d5e-9d9593e235fe.jpg" width="317" height="123"></a>
@@ -48,7 +48,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 ### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/23" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://raw.githubusercontent.com/xjy16/books/master/cover/xjy548.jpg" width="210"></a>
+<a href="https://github.com/tomalltruthforyou/weekly/blob/master/README.md" target="_blank"><img src="https://raw.githubusercontent.com/xjy16/books/master/cover/xjy558.jpg" width="210"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://github.com/xjy16/books/blob/master/cover/XS-18s.jpg" width="210"></a>
 ### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/oGate2/oGate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
