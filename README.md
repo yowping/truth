@@ -38,11 +38,11 @@
 ### ▶ 明慧期刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/truth/issues/7" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35958609-b0fa484c-0c6f-11e8-94d9-82ee1ee728cb.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/6" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35958866-090baec6-0c71-11e8-8dc2-bad2fa25a0c4.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/23082611/b928e6d0-f51f-11e6-9949-d51f43f88183.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://user-images.githubusercontent.com/28036978/27419703-553188ac-56f0-11e7-9fd8-667dc0499cf4.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/28678329-b87025f0-72b5-11e7-9790-59b6c245b807.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/26" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/28678328-b86efce8-72b5-11e7-8a6f-0899e25e10a3.jpg" width="100" height="142"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/27" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/22404285/2d11cec2-e5f3-11e6-8037-9c4e81ffb362.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/8" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35957866-bfc41690-0c6b-11e8-9512-9c54ccd4470c.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/15" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35947417-ca558fa2-0c35-11e8-800e-43f9903ce914.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/16" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35947191-aa470336-0c34-11e8-87f5-244325cbfa3b.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/26" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35946599-6d57e3de-0c32-11e8-9d3f-ca0cb5474358.jpg" width="100" height="142"></a>
+<a href="https://github.com/tomalltruthforyou/truth/issues/27" target="_blank"><img src="https://user-images.githubusercontent.com/18081243/35947056-187fc67c-0c34-11e8-84a1-62128324c21f.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400894/4698562e-fe43-11e5-8234-a85a86def324.JPG" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575113/c2fa3f34-cef9-11e6-9c3b-88f6d260405f.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
@@ -62,5 +62,5 @@
 ### 持续翻墙方法
 - 收藏本站 https://git.io/true168
 - 邮箱索取 freeget.one@gmail.com 发送一封任意主题的空白信至该邮箱，即可收到最新版翻墙软件。若使用国内邮箱无法收到回信，请用海外邮箱再试一次，肯定能收到。
-- 翻墙软件(下载)网址：https://git.io/free
+- 翻墙软件(下载)网址：https://git.io/free99
 - 手机翻墙：安卓 http://ur1.ca/oo05n 苹果 https://git.io/ifq
